@@ -25,6 +25,9 @@ This is a list of all Black Friday Deals for macOS / iOS Software & Books in 202
 ### 💰 [Past for iChat](https://apps.apple.com/us/app/past-for-ichat/id1554897185) – Open iChat Chatlogs on macOS 11+ · 33% off
 ### 💰 [Spaces](https://spacesformac.xyz) - Declutter & organize your workspace in one single click. Features: Raycast integration, 16+ custom layouts, layout switcher, shortcuts support and many more - **40% OFF until BlACK FRIDAY**
 
+## Social
+### 💸 [Bird search](https://birdsearch.carrd.co) - Advanced search app for Twitter. Unlock all the hidden fields that let you search content on Twitter just the way you wanted. Available on iOS/macOS/iPadOS - 60% OFF on Appstore
+
 ## 🎨 Graphic Software
 ### 💸 [Xnapper](https://xnapper.com) - Take beautiful screenshot easy and fast. Smart features: auto balance, auto hide sensitive info, auto fill background color. Other features: with annotations, image compression, and keyboard shortcuts. Fully supports Apple Silicon & macOS Ventura. 50% OFF with code **BLACKFRIDAY_2022**
 ### 💸 [Digital Photo Frame App](https://digitalphotoframeapp.com/) - Turn your iPad into a digital photo frame. The most gorgeous and powerful photo player application for the iPad and iPhone. **50% OFF lifetime purchase**
